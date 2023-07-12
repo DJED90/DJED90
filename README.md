@@ -15,6 +15,7 @@ passionné
 Je souhaite travaillé sur de nombreux projets web, et j'ai hâte de collaborer avec vous sur de nouveau projet.
 
 N'hésiter pas a me contacter pour plus d'information :)
+---
 ________________________________________________________________________________________________
 
 Constantly on the lookout for new technologies and new trends of the web, I am curious, autonomous, and passionate
